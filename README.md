@@ -1,0 +1,1 @@
+# sts-462-social-and-political-implications-of-technology-spring-2006_bebad26d2ff94b45a499ac7856c9d7e3
